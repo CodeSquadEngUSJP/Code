@@ -1,2 +1,0 @@
-# CodeSquadEngUSJP.github.io
-
